@@ -4,7 +4,6 @@ wip omg nobwhait why ar euhere come back when its finished GO AWAY😡😡😡ok
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-ㅤ ㅤ ㅤㅤ![ⓓⓔ℘ꫀׁׅܻ݊݊ꪀժׁׅ݊ꫀׁׅܻ݊݊ꪀ🄲ⓔ](https://komarev.com/ghpvc/?username=connieboolynski&label=‎ꫂ᭪݁ⓓⓔ℘ꫀׁׅܻ݊݊ꪀժׁׅ݊ꫀׁׅܻ݊݊ꪀ🄲ⓔ%E0%B8%AD&color=9BEFFF)
- 
+ㅤ ㅤ ㅤ![ꫂ᭪݁ⓓⓔ𝒑𝒆𝒏𝒅𝒆𝒏🄲ⓔ](https://img.shields.io/badge/ꫂ᭪݁ⓓⓔ𝒑𝒆𝒏𝒅𝒆𝒏🄲ⓔ%E0%B8%AD-1K-9BEFFF)
 
 
