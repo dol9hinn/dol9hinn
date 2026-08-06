@@ -1,3 +1,7 @@
-wip omg nobwhait why ar euhere come back when its finished GO AWAY😡😡😡
-<img width="736" height="414" alt="1000027407" src="https://github.com/user-attachments/assets/531ae032-8352-4548-80d9-28b8011c20fc" />
+wip omg nobwhait why ar euhere come back when its finished GO AWAY😡😡😡ok go
+
+ <img width="736" height="340" alt="1000027428" src="https://github.com/user-attachments/assets/3541ac51-e3e8-46d4-a74d-159d923720d5" />
+
+ 
+
 
