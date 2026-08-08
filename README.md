@@ -1,8 +1,9 @@
-wip go away im testing everything here
+wip
+<img width="720" height="844" alt="1000027491" src="https://github.com/user-attachments/assets/936b41ed-8677-4b6b-9324-f5ec1b95d212" />
 
 
 <details>
-<summary>please read</summary>
+<summary>info</summary>
 
 i am known as GAMBLEGHOST or a very heavy connie fictionkin. i dont know if i kin her or not im nearly confused and yes i will still be the gambleghost ceo. i only enjoy the characters and i can tell i heavily lost the interest, but dont call me connie unless ur a friend thx. plus people always think im tia but i go by tiaa pls keep in mind!!
 
