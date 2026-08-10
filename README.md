@@ -1,5 +1,6 @@
-wip
-<img width="720" height="844" alt="1000027491" src="https://github.com/user-attachments/assets/936b41ed-8677-4b6b-9324-f5ec1b95d212" />
+wip ok dont slime me
+<img width="736" height="736" alt="1000027555" src="https://github.com/user-attachments/assets/64213b45-81c4-4466-a766-a7d45e4c7c76" />
+
 
 
 <details>
