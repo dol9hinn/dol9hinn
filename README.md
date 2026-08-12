@@ -3,7 +3,7 @@ wip ok dont slime me
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-ㅤㅤㅤㅤㅤㅤ![prns.cc](https://pronouns.cc/@dol9hinn)
+ㅤㅤㅤㅤㅤㅤㅤ [prns.cc](https://pronouns.cc/@dol9hinn)
 
 <details>
 <summary>info</summary>
