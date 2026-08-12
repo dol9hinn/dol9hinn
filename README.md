@@ -11,7 +11,7 @@ i am known as GAMBLEGHOST or a very heavy connie fictionkin. i dont know if i ki
 ---
 
 im a very heavy dol9hin kin,
-i deeply see myself in her and also relate to her very much. any hate or negative talking about her feels personal to me. thats all ;)
+i deeply see myself in her character and also relate to her character very much. any hate or negative talking about her feels personal to me. thats all ;)
 
 </details>
 
