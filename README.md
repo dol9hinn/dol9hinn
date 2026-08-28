@@ -52,7 +52,7 @@ i deeply see myself in her character and also relate to her character very much.
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤ
  ㅤ  ㅤㅤ
-ㅤㅤ ㅤㅤㅤ  ㅤ   $$\color{#D5F9FF}\text{tiaa}$$ ㅤ<img width="20" height="20" alt="1000027745" src="https://github.com/user-attachments/assets/c21704bf-1ddc-48cb-b80a-334848a33684" />ㅤ $$\color{#FFDEF0}\text{pixie}$$ ㅤ<img width="20" height="20" alt="1000027742" src="https://github.com/user-attachments/assets/0539eae6-1023-480e-bad5-8924a9ff9785" />ㅤ $$\color{#DDFBFF}\text{dolphin}$$
+ㅤㅤ ㅤㅤㅤ  ㅤ   ㅤㅤㅤㅤㅤㅤㅤㅤㅤ $$\color{#D5F9FF}\text{tiaa}$$ ㅤ<img width="20" height="20" alt="1000027745" src="https://github.com/user-attachments/assets/c21704bf-1ddc-48cb-b80a-334848a33684" />ㅤ $$\color{#FFDEF0}\text{pixie}$$ ㅤ<img width="20" height="20" alt="1000027742" src="https://github.com/user-attachments/assets/0539eae6-1023-480e-bad5-8924a9ff9785" />ㅤ $$\color{#DDFBFF}\text{dolphin}$$
 
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
