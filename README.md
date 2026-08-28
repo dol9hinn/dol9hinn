@@ -9,8 +9,7 @@ still wip 😓 <img width="736" height="499" alt="1000028546" src="https://githu
 
  <img width="20" height="20" alt="1000027746" src="https://github.com/user-attachments/assets/a82b5bc1-db78-4664-adc0-4233f0165884" />ㅤ  [prns.cc](https://pronouns.cc/@dol9hinn) ㅤㅤ[prns.page](https://en.pronouns.page/@dol9hinn) ㅤㅤ[ata](https://sosodolph.atabook.org)ㅤ<img width="20" height="20" alt="1000027742" src="https://github.com/user-attachments/assets/3b45600f-8766-4ecb-939d-cbcf9ded1148" />
 
- <img width="131" height="89" alt="1000028552" src="https://github.com/user-attachments/assets/9835f57a-b3ce-4ede-92c0-09697387a53d" />ㅤ
- <img width="131" height="89" alt="1000028551" src="https://github.com/user-attachments/assets/bf7e13da-76f5-4c2b-9405-e376e0e03281" />
+ <img width="131" height="89" alt="1000028552" src="https://github.com/user-attachments/assets/9835f57a-b3ce-4ede-92c0-09697387a53d" /> <img width="131" height="89" alt="1000028551" src="https://github.com/user-attachments/assets/bf7e13da-76f5-4c2b-9405-e376e0e03281" />
 
 
 
