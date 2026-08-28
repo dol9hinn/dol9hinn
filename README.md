@@ -3,6 +3,8 @@
 
 
  <img width="734" height="552" alt="1000028543" src="https://github.com/user-attachments/assets/8c849c7d-dab4-4ed1-a516-d8884bca1072" />
+ 
+#### ㅤ ㅤㅤ ㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤuse phone for a better experience
 
 <img width="736" height="241" alt="1000028588" src="https://github.com/user-attachments/assets/7966ee24-5326-4a7d-8c63-cd339c24aec0" />
 
@@ -11,7 +13,7 @@
 
 
 
-ㅤ<img width="131" height="85" alt="1000028552" src="https://github.com/user-attachments/assets/9835f57a-b3ce-4ede-92c0-09697387a53d" /> <img width="131" height="85" alt="1000028551" src="https://github.com/user-attachments/assets/bf7e13da-76f5-4c2b-9405-e376e0e03281" /> 
+<img width="131" height="85" alt="1000028552" src="https://github.com/user-attachments/assets/9835f57a-b3ce-4ede-92c0-09697387a53d" /> <img width="131" height="85" alt="1000028551" src="https://github.com/user-attachments/assets/bf7e13da-76f5-4c2b-9405-e376e0e03281" /> 
 
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
