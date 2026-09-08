@@ -48,10 +48,11 @@ i deeply see myself in her character and also relate to her character very much.
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
+<img width="3504" height="2196" alt="1000028866" src="https://github.com/user-attachments/assets/44696aa0-87f5-4f08-8976-9691c61904e5" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤ
- ㅤㅤㅤㅤ ㅤㅤㅤ   ㅤㅤㅤ ㅤ $$\color{#D5F9FF}\text{tiaa}$$ ㅤ<img width="20" height="20" alt="1000027745" src="https://github.com/user-attachments/assets/c21704bf-1ddc-48cb-b80a-334848a33684" />ㅤ $$\color{#FFDEF0}\text{pixie}$$ ㅤ<img width="20" height="20" alt="1000027742" src="https://github.com/user-attachments/assets/0539eae6-1023-480e-bad5-8924a9ff9785" />ㅤ $$\color{#DDFBFF}\text{dolphin}$$
+ ㅤㅤㅤㅤ ㅤㅤㅤ   ㅤㅤㅤ ㅤ  ㅤㅤ $$\color{#D5F9FF}\text{tiaa}$$ ㅤ<img width="20" height="20" alt="1000027745" src="https://github.com/user-attachments/assets/c21704bf-1ddc-48cb-b80a-334848a33684" />ㅤ $$\color{#FFDEF0}\text{dolph(in)}$$
 
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
@@ -63,5 +64,8 @@ i deeply see myself in her character and also relate to her character very much.
 
 
 ㅤ ㅤ<img width="20" height="20" alt="1000027741" src="https://github.com/user-attachments/assets/f3614074-f131-4792-ab80-7a7c28f9da67" /> ![ꫂ᭪݁ⓓⓔ𝒑𝒆𝒏𝒅𝒆𝒏🄲ⓔ](https://img.shields.io/badge/ꫂ᭪݁ⓓⓔ𝒑𝒆𝒏𝒅𝒆𝒏🄲ⓔ%E0%B8%AD-1K-9BEFFF) <img width="20" height="20" alt="1000027741" src="https://github.com/user-attachments/assets/f3614074-f131-4792-ab80-7a7c28f9da67" />
+
+<img width="289" height="95" alt="1000029100" src="https://github.com/user-attachments/assets/2df188cf-4651-45b9-8be9-a0b4b5983503" />
+
 
 
