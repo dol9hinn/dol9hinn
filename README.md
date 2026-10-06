@@ -27,7 +27,7 @@
 <details>
 <summary> ⊹ . ݁۶۟ ৎ ✚ ‎ꫂ · ᭪݁ . ݁</summary>
 
-im currently interested in mace smp life steal unstable smp, dandys world, the freak circus, sewh and tf2, dod. im in much more fandoms but those are like my main fandoms i can tell also i really really like squiddo sososhaun dol9hin spoke flamefrags planetlord and twixxel
+im currently interested in mace smp life steal unstable smp, dandys world, the freak circus, sewh and tf2, letters from sixteen. im in much more fandoms but those are like my main fandoms i can tell also i really really like squiddo sososhaun dol9hin spoke flamefrags planetlord and twixxel
 
 ---
 
